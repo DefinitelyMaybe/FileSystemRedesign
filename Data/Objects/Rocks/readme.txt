@@ -1,0 +1,1 @@
+rocks, crystals, minerals, ores... etc - HERE.
